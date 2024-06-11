@@ -1,6 +1,4 @@
-# TITLE
-
-## Adobe Overview and Origin
+## Adobe
 
 ## Adobe: Company Domain, History, and Results
 
